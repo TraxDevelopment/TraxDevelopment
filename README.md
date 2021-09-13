@@ -1,0 +1,5 @@
+- Hi, I'm Trax
+- I like lua & C++
+- I make Roblox Scripts
+- You can contact me at Trax#8221
+- My discord is here https://discord.gg/8nc8ruA5uH
